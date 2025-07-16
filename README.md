@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning Data Analyst
 - 💞️ I’m looking to collaborate on Big Data Analyst Projects and Learning.
 - 📫 How to reach me Touqeersaeed75@gmail.com
-- 😄 Pronouns: Brooooooooooo!
   
 
 <!---
